@@ -7,7 +7,7 @@ copyright and yo can get banned so test it locally follow the rules and enjoy yo
 
 # promo 
 
-<a href="https://www.youtube.com/watch?v=jDNvoGFXWo0"><h1>safe hands I promo</h1></a>
+ here is the link for promo - https://www.youtube.com/watch?v=jDNvoGFXWo0
 
 # Yt tutorial 
 
