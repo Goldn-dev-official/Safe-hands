@@ -8,7 +8,7 @@ copyright and yo can get banned so test it locally follow the rules and enjoy yo
 # promo 
 
  here is the link for promo - https://www.youtube.com/watch?v=jDNvoGFXWo0<br>
- and checkout my website for more info - pranavram21.netlify.app
+ checkout my website for more info - pranavram21.netlify.app
 
 # Yt tutorial 
 
