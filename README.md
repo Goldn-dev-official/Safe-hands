@@ -5,11 +5,11 @@ safety.rar has all the source code you can customise it in android studio and te
 copyright and yo can get banned so test it locally follow the rules and enjoy your time 
 
 
-#promo 
+# promo 
 
 <a href="https://www.youtube.com/watch?v=jDNvoGFXWo0"><h1>safe hands I promo</h1></a>
 
-#Yt tutorial 
+# Yt tutorial 
 
 coming very soon ...... as soon as i finish my other projects 
 
